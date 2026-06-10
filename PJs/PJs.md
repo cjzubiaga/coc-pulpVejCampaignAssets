@@ -51,7 +51,7 @@ Desde que su compañero de escuadrón, Arthur Graves, falleción en aquella crue
 
 El aeródromo de Arkham, donde vive y tiene su base, el cementerio militar de Étaples en Francia y la finca familiar en Yorkshire son los lugares que más respesta y dónde le gusta pasar tiempo, por diferentes motivos, obviamente.
 
-Su revolver Webley Mk VI, la fotografía del escuadrón 31 de la RAF y su nave, El Jinete Nocturno, un Junkers JU-52, son sus posesiones más preciadas.
+Su revolver Webley Mk VI, la fotografía del escuadrón 31 de la RAF (los dragones de la noche) y su nave, El Jinete Nocturno, un Junkers JU-52, son sus posesiones más preciadas.
 
 Tiene distintas condecoraciones, múltiples recuerdos de la guerra, equipo de campaña militar, manuales de vuelo y navegación, su título de Lord, su chaqueta de cuero de la RAF y una bonita bufanda de seda blanca.
 
