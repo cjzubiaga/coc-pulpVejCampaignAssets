@@ -2,9 +2,9 @@
 
 ## Gwendoline Cadwallader
   
-Gwendoline es una joven de aspecto frágil y delicado, parece estar en las nubes aunque es de voluntad decidida y siempre está atenta a todo debido a su curiosidad. Es idealista, intuitica, soñadora y curiosa. Tiene 25 años, es una artista soñadora procedente de Cardiff aunque vive en Arkham.
+Gwendoline es una joven de aspecto frágil y delicado, parece estar en las nubes aunque es de voluntad decidida y siempre está atenta a todo debido a su curiosidad. Es idealista, intuitiva, soñadora y curiosa. Tiene 25 años, es una artista soñadora procedente de Cardiff aunque vive en Arkham.
     
-La persona a la que ha estado más unida siempre ha sido su nana (abuela) Madelein Bowen, también su padre Gareth Cadwallader propietario de Pinturas Cadwallader, una pequea industria dedicada a la manufacura de pintura al óleo.
+La persona a la que ha estado más unida siempre ha sido su nana (abuela) Madelein Bowen, también su padre Gareth Cadwallader propietario de Pinturas Cadwallader, una pequeña industria dedicada a la manufacura de pintura al óleo.
 
 Gwen, como le gusta que le llamen, adora pasar tiempo en la finca de su nana, a las afueras de Cardiff. Últimamente no puede pasar mucho tiempo ahí debido a su actual residencia al otro lado del Atlántico.
     
@@ -15,7 +15,7 @@ Como objetos personales que suele llevar destacan: su cámara de fotos, su kiker
 
 ## Connnor Donovan
 
-Connor es un policía de a pie de la ciudad de Arkham. Es un hombre fuerte, de un tamaño muy por encima de la media, alto, corpulento. Su cara, es una cara del montón, aunque fría. Destaca su carácter tranquilo y callado. Cristiano por herencia y original de Chicago. Su padre, fallecido en acto de servicio siempre fue un referente para él, al menso sus hermanos, también policías siguen vivos y activos en su Chicago nata.
+Connor es un policía de a pie de la ciudad de Arkham. Es un hombre fuerte, de un tamaño muy por encima de la media, alto, corpulento. Su cara, es una cara del montón, aunque fría. Destaca su carácter tranquilo y callado. Cristiano por herencia y original de Chicago. Su padre, fallecido en acto de servicio siempre fue un referente para él, al menos sus hermanos, también policías siguen vivos y activos en su Chicago nata.
 
 Su posesión más preciada es una medalla del Arcangel San Miguel. Además de la medalla suele llevar su porra de policía, su colt 45 y unas nudilleras (nunca sabes si habrá pelea). En casa guarda bajo llave un rifle de cerrojo.
 
@@ -25,7 +25,7 @@ Además de su trabajo como policía, para ganarse algún dinerillo extra hace tr
 
 ## Ruby Nickels
 
-Ruby es una ingeniera de 35 años que trabaja en la universidad de Miskatonik en Arkham. Es de apariencia delicada, frágil y con ara de niña.
+Ruby es una ingeniera de 35 años que trabaja en la universidad de Miskatonik en Arkham. Es de apariencia delicada, frágil y con cara de niña.
 
 Persona racional donde las haya, cree que la ciencia tiene todas las respuestas, aunque por alguna razón cree en el destino.
 
@@ -35,13 +35,13 @@ Adora pasar tiempo en su laboratorio, ya se arreglando cosas, como inventando nu
 
 Es ante todo, práctica, resiliente y racional.
 
-Tiene una gata que recogió en la calle yna brújula que le regaló su abuelo por un cumpleaños esas dos cosas son sus bienes más preciados.
+Tiene una gata que recogió en la calle y una brújula que le regaló su abuelo por un cumpleaños esas dos cosas son sus bienes más preciados.
 
 
 
 ## Sir Reginald "Reggie" Fairchild
 
-Sir Reginald Fairchild, caballero británico, veterano de la Gran Guerra, experto aviador y temerario. A sus 39 años reside en Arkham lejos de su Yorkshire natal. Vive en su aeródromo, a las afueras de Arkham (sur) en una oficina reconvertida en casa. Riene empleada a la joven Florence Harrington también veterana, amiga que sufrió una lesión en la guerra y ahora cojea. Reggie es un hombre encatandor, temerario, leal y fervierte amante del riesgo, si se encuentea lo suficientemente presionado puede ser de lo más ingenioso. Tiene una fobia especial al fuego, a quedarse atrapado en un incendio, esto se debe a un accidente durante la guerra donde se ganó esa cicatriz en forma de quemadura en su mano izquierda. Los hospitales, y sobre todo su olor son algo que detesta, incluso odia.
+Sir Reginald Fairchild, caballero británico, veterano de la Gran Guerra, experto aviador y temerario. A sus 39 años reside en Arkham lejos de su Yorkshire natal. Vive en su aeródromo, a las afueras de Arkham (sur) en una oficina reconvertida en casa. Tiene empleada a la joven Florence Harrington también veterana, amiga que sufrió una lesión en la guerra y ahora cojea. Reggie es un hombre encatandor, temerario, leal y fervierte amante del riesgo, si se encuentea lo suficientemente presionado puede ser de lo más ingenioso. Tiene una fobia especial al fuego, a quedarse atrapado en un incendio, esto se debe a un accidente durante la guerra donde se ganó esa cicatriz en forma de quemadura en su mano izquierda. Los hospitales, y sobre todo su olor son algo que detesta, incluso odia.
 
 Actualmente, no por necesidad, si no por su ansia de aventura y peligro, Reggie se dedica a transportar distintos tipos de carga, tanto legales como de contrabando, teniendo su base en Arkhamn debido a sus negocios con la universidad de Miskatonik.
 
