@@ -47,7 +47,7 @@ Actualmente, no por necesidad, si no por su ansia de aventura y peligro, Reggie 
 
 Aunque educado en el anglicismo es un ferviente defensor de que todos estamos predestinados a algo.
 
-Desde que su compañero de escuadrón, Arthur Graves, falleción en aquella cruenta batalla en Francia, su hermano pequeño Thomas "Tommy" Graves es su mayor apoyo.
+Desde que su compañero de escuadrón, Arthur Graves, falleción en aquella cruenta batalla en Francia, su hermano pequeño Thomas "Tommy" Graves es su mayor apoyo. Tommy vive en Arkham en el barrio de River Town de dónde es originario con su madre Margaret Graves. Reggie gastó una fortuna en comprar el aeródromo para estar cerca de él y cumplir la promesa de cuidarle.
 
 El aeródromo de Arkham, donde vive y tiene su base, el cementerio militar de Étaples en Francia y la finca familiar en Yorkshire son los lugares que más respesta y dónde le gusta pasar tiempo, por diferentes motivos, obviamente.
 
