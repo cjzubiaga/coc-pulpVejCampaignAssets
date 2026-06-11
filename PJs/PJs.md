@@ -55,7 +55,7 @@ Su revolver Webley Mk VI, la fotografía del escuadrón 31 de la RAF (los dragon
 
 Tiene distintas condecoraciones, múltiples recuerdos de la guerra, equipo de campaña militar, manuales de vuelo y navegación, su título de Lord, su chaqueta de cuero de la RAF y una bonita bufanda de seda blanca.
 
-## Eagle Jack
+## Jack Newman (Eagle Jack)
 
 DESCRIPCIÓN PERSONAL   
 Todo el mundo concuerda en que tiene un gran parecido físico con Cary Grant: metro ochenta y cinco, delgado y atlético, hombros anchos, porte erguido, cuidado cabello oscuro con raya lateral, rostro alargado con una mandíbula marcada y una encantadora sonrisa. Tiene dos trajes de Hart Schaffner & Marx (uno azul con rayas y otro marrón) que cuida con mimo y siempre se guarda de tener a mano una pluma y un encendedor. Jack opina como Maquiavelo cuando este dice que “pocos ven lo que somos, pero todos ven lo que aparentamos”.  
