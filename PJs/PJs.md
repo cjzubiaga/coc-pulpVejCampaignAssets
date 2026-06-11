@@ -57,13 +57,21 @@ Tiene distintas condecoraciones, múltiples recuerdos de la guerra, equipo de ca
 
 ## Eagle Jack
 
-Eagle Jack, es el estereotipo de estadunidense, nacido en Wyoming uno de los estados más consevadores de los Estados Unidos. Es corpulente, grande y tremendamente atractivo.
+DESCRIPCIÓN PERSONAL   
+Todo el mundo concuerda en que tiene un gran parecido físico con Cary Grant: metro ochenta y cinco, delgado y atlético, hombros anchos, porte erguido, cuidado cabello oscuro con raya lateral, rostro alargado con una mandíbula marcada y una encantadora sonrisa. Tiene dos trajes de Hart Schaffner & Marx (uno azul con rayas y otro marrón) que cuida con mimo y siempre se guarda de tener a mano una pluma y un encendedor. Jack opina como Maquiavelo cuando este dice que “pocos ven lo que somos, pero todos ven lo que aparentamos”.  
+IDEOLOGÍA / CREENCIAS  
+Bajo una fachada de cristiano patriotismo, Jack oculta sus verdaderas creencias sobre América. Forjó de niño un pensamiento de desencanto, cinismo y pesimismo durante la Gran Depresión. Su Sueño Americano quedó retorcido en una suerte de pesadilla de la que, con trabajo duro, se podrían salvar los más listos o perversos. Parece una persona materialista que antepone sus metas financieras a las relaciones personales; y, de hecho, siente desconfianza hacia los que tienen intenciones altruistas, como “ese tal Roosevelt” con sus políticas de la New Deal. No obstante, detrás de esta primera capa de objetivismo (al puro estilo Reagan) se oculta una profunda crisis de identidad con su orientación sexual (gay). Estas circunstancias le han transformado en un discreto nómada oportunista y pragmático.   
+LUGARES SIGNIFICATIVOS  
+Para Jack, todos los lugares tienen cierto encanto y no hay ningún hogar que se le asemeje en comodidad a una noche en el Waldorf-Astoria o en los hoteles Sheraton. Es una persona superficial y hedonista; pero siempre que puede come una hamburguesa y toma un batido del Childs’, una cadena de dinners a la que solía ir con su padre.   
+POSESIONES PRECIADAS  
+Jack aprecia, por encima del resto, a dos de sus posesiones. La primera es el Ford V8 que se compró el año pasado (1937). Hasta el momento estaban manejando un Ford Modelo A de segunda mano con casi diez años de antigüedad. Su vehículo representa la materialización de sus esfuerzos, un símbolo de progreso.  Desde un prisma más íntimo, está el reloj de bolsillo marca Elgin que siempre lleva consigo. A sus clientes les impresiona con el Bulova de muñeca fabricación suizoamericana, pero el que realmente aprecia es de bolsillo porque se lo regaló su padre poco antes de suicidarse junto a un consejo del presidente Lincoln: “Al final, lo que cuenta no son los años de tu vida, sino la vida de tus años” (“In the end, it’s not the years in your life that count. It’s the life in your years”). Por detrás, la carcasa del reloj tiene grabado a modo de recordatorio “Life in your years”.  
+FOBIAS Y MANÍAS  
+Como la homosexualidad es criminalizada judicial y moralmente, Jack ha desarrollado una gran hipervigilancia respecto a esta esfera de su vida. Este hermetismo se alimenta de un buen cúmulo de malas experiencias: agentes de la ley que le han pedido sobornos, exnovios que le han amenazado con revelar su desviación a su familia, y vigilantes de la moral pública esperando a la salida de los bares o en parques oscuros para pegar una paliza al primero que tenga la mala suerte de salir.  
+LESIONES Y CICATRICES  
+Jack tiene ligeramente desplazada la nariz. Es la principal secuela que le quedó de una violenta redada policial en un speakeasy de su ciudad natal, Pittsburgh.  
+ALLEGADOS 
+Las únicas personas a las que profesora cierto afecto son su madre, Margaret, y su hermana mayor, Olivia. La primera está internada en el Hospital Estatal de Dixmont con un cuadro clínico de lo que los doctores llaman “melancolía” (depresión severa). La segunda vive con su marido Dermont en la casa donde se criaron de niños, en el South Side. Todas las semanas le hace una llamada para comprobar cómo van las cosas en su casa, consciente de que por lo general mal. La segunda recesión golpeó igual de duro que la Gran Depresión en el barrio y muchos obreros se quedan en casa todo el día sentados en sus porches bebiendo a escondidas. Olivia trabaja haciendo el servicio doméstico para una familia adinerada para disgusto y vergüenza de Dermont. Además, están esperando un bebe.  Desde su faceta profesional, su primer trabajo en ventas fue para la Fuller Brush Company. De esta etapa le guarda una especial estima a la que le enseñó muchos de los trucos del oficio, su mentora la señorita Mary Liniger. Tras un lustro con los pequeños productos del hogar, dio el salto a los electrodomésticos cuando le ficharon para la plantilla de Hoover: ¡la mejor aspiradora de los EEUU! 
 
-Tiene un Ford V8 con el que recorre el pais vendiendo todo lo que se encuentre por el camino, detrás de esa apariencia gŕacil y sus maneras de vendedor ambulante confiable se esconde un gran timador. En el coche lleva todo tipo de material: Aspiradores, enciclopedias, etc.
-
-Intenta manipular a todo el mundo para caerle bien, tremendo charlatán, gran embaucador.
-
-Capaz de interpretar ciertos papeles, gran habilidad social, atento. ¡Cuidado no te lea los labios!
 
 ## Justin Taylor
 
